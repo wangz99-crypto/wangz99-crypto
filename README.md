@@ -108,5 +108,5 @@ Bridging business strategy with engineering rigor
 
 ## 📫 Connect
 
-🔗 LinkedIn  
-🔗 Portfolio Website
+🔗 LinkedIn: https://www.linkedin.com/in/zhe-wang-b89021354/  
+🔗 Email: wangz99@udayton.edu
